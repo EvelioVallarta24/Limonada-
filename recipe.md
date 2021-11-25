@@ -1,0 +1,4 @@
+Primero, en una jarra vacias el litro y medio de agua y le pones dos cucharones grandes de azúcar y lo mezclas hasta que se integre bien el azúcar con el agua. Esto es para que el agua se endulce bien porque con el limón no se endulza del todo bien.
+El segundo paso es ponerle la mitad de una cucharadita de sal y una cucharada de bicarbonato. El bicarbonato ayuda a que el sabor sea más bueno y se puede notar fácilmente.
+Ahora tenemos que cortar los limones a la mitad y de preferencia con un exprimidor los exprimimos todos y que este se cole con un colador(A mi me gusta más colado pero eso ya depende de cada quien). 
+Ya por último lo batemos todo bien y lo metemos al refrigerador porque frío sabe mucho más bueno y es más refrescante.
